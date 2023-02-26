@@ -61,3 +61,5 @@ happy birthday
 猫
 
 アイネクライネ
+
+HANABI
