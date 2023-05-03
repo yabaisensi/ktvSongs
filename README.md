@@ -58,7 +58,7 @@ little bunny
 
 happy birthday
 
-猫
+猫 DISH
 
 アイネクライネ
 
