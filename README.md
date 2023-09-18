@@ -32,126 +32,106 @@ sunshine girl	moumoon
 
 君の知らない物語　supercell
 
-世界に一つだけの花
+世界に一つだけの花　SMAP
 
-灰色と青
+灰色と青　米津玄師
 
-ButterFly
+ButterFly　和田光司
 
-春よ、来い
+春よ、来い　松任谷由実
 
-アスノヨゾラ哨戒班
+アスノヨゾラ哨戒班　Orangestar
 
-届かない恋
+届かない恋　上原れな
 
-白金ディスコ
+白金ディスコ　阿良々木月火(井口裕香)
 
-片思い
+最高の片想い   タイナカ彩智
 
-Ref:rain
+カタオモイ	Aimer
 
-glow---鹿乃
+Ref:rain Aimer
 
-ブルーバード
+glow  鹿乃
 
-unravel
+ブルーバード	 いきものがかり
 
-one ok rock Re:make
+unravel	TK from 凛として時雨
 
-lemon tree
+Re:make	one ok rock 
 
-夜明けと蛍
+夜明けと蛍   n-buna
 
-センチメンタルな愛慕心
+センチメンタルな愛慕心   GUMI
 
-内臓ありますか
+内臓ありますか  ピノキオピー
 
-１６：２０
-
-little bunny
-
-流星メテエシカ
-
-happy birthday
+HAPPY BIRTHDAY  back number
 
 猫 DISH
 
-アイネクライネ
+アイネクライネ  米津玄師
 
-HANABI
+HANABI  Mr.Children
 
-灰色と青
+さよならエレジー  菅田将暉
 
-猫
-
-snow jam
-
-アイネクライネ
-
-HANABI
-
-さよならエレジー
-
-トドカナイカラ
+トドカナイカラ  平井堅
 
 Rain   秦基博
 
-HAPPY BIRTHDAY
+TOKYO GIRL  HITOMINMI(島谷ひとみ×MINMI)
 
-TOKYO GIRL
+打上花火   DAOKO × 米津玄師
 
-打上花火
+your song  SUPER BEAVER
 
-your song
+いつか    saucy dog
 
-いつか           1 1111
+バナナフィッシュの浜辺と黒い虹   Galileo Galilei
 
-バナナフィッシュの浜辺と黒い虹
+115万キロのフィルム  Official髭男dism
 
-115万キロのフィルム
+点描の唄     井上苑子
 
-点描の唄         11111
+何なんw   藤井風
 
-何なんw
+ボクノート     スキマスイッチ
 
-ボクノート     
+秒針を噛む   ずっと真夜中でいいのに
 
-秒針を噛む
+車輪の唄   BUMP OF CHICKEN
 
-車輪の唄
+貴方解剖純愛歌    あいみょん
 
-貴方解剖純愛歌      1111111
+恋音と雨空   AAA
 
-恋音と雨空
+棒人間   RADWIMPS
 
-棒人間
+エイプリル   mol-74
 
-エイプリル
+Hikari     androp
 
-Hikari
+アイロニ  さとみ
 
-アイロニ
+福寿草   初音ミク
 
-福寿草
+フィクション   sumika
 
-フィクション
+フラレライガール  さユり
 
-フラレライガール
+抱きしめて  indigo la End
 
-抱きしめて
+イエスタデイ   Official髭男dism
 
-イエスタデイ    11111
+サヨナラCOLOR   SUPER BUTTER DOG
 
-ボクノート
-
-サヨナラCOLOR
-
-たばこ
+たばこ    コレサワ
 
 SWEET MEMORIES
 
-キセキ
+キセキ   GReeeeN
 
-君の神様になりたい
+君の神様になりたい  初音ミク
 
-ひとつのハートで
+ひとつのハートで  三重野瞳
