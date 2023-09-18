@@ -2,7 +2,7 @@
 
 ひとり上手　中島美雪
 
-小さなてのひら   Lia  作詞:Jun Maeda,作曲:Jun Maeda
+小さなてのひら   Lia 
 
 summertime    原田夏樹(evening cinema)&鈴木まりこ(cinnamons)　
 
@@ -135,3 +135,4 @@ SWEET MEMORIES
 君の神様になりたい  初音ミク
 
 ひとつのハートで  三重野瞳
+
