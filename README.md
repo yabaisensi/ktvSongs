@@ -1,20 +1,36 @@
 # 推荐歌单
 
-銀の龍の背に乗って
+ひとり上手　中島美雪
 
-風になる
+小さなてのひら   Lia  作詞:Jun Maeda,作曲:Jun Maeda
 
-小さな恋の歌
+summertime    原田夏樹(evening cinema)&鈴木まりこ(cinnamons)　
 
-僕が死のうと思ったのは
+my all 			浜崎あゆみ
 
-雪の華 
+sunshine girl	moumoon
 
-奏
+群青 	- YOASOBI (ヨアソビ)　　主唱：ikura/幾田りら、Plusonica合唱团
 
-新宝岛
+扉をあけて	ANZA
 
-君の知らない物語
+さくら~あなたに会えってよかった	RSP
+
+銀の龍の背に乗って　中島美雪
+
+風になる　つじあや
+
+小さな恋の歌　MONGOL800
+
+僕が死のうと思ったのは　中島美嘉
+
+雪の華 　中島美嘉
+
+奏　スキマスイッチ
+
+新宝岛　サカナクション
+
+君の知らない物語　supercell
 
 世界に一つだけの花
 
